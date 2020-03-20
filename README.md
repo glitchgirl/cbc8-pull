@@ -6,3 +6,4 @@ Jimmy
 Morgan 
 Taron L. Head
 Lexie
+Chanice
