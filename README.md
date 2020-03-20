@@ -12,5 +12,5 @@ Jamilla
 Chanice
 Sarah!!
 Tyler
-Priscilla
 Venus
+Priscilla
